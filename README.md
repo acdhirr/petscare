@@ -77,7 +77,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - brocolli/cauliflower or cabbage (but not more then two days in a row)
     - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
     - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, paprika leaves, tomato leaves or hot peppers (just saying :-)
-    - We'll leave some cash money to buy fruit or vegetables. Just across the street in the former church building which now houses a mosque there's a nice little shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
+    - We'll leave some cash money to buy fruit or vegetables. Just across the street in the former church building which now houses a mosque there's a nice little turkish shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
 
 ### Living space
 
