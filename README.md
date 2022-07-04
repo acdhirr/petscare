@@ -1,7 +1,7 @@
 # PETS CARE
-<img src="photo/PXL_20220630_063509681.jpg" width="200" />
 
 ## Cats care
+<img src="photo/PXL_20220626_214820633.jpg" width="400" />
 
 ### Feeding
 - Cats will be feeded by the robot from 21:00 - 6:00. The robot dispenses food pellets that both cats digest well. 
@@ -18,7 +18,7 @@
             <img src="photo/PXL_20220630_063509681.jpg" width="400" />
         </td>
         <td>
-            <img src="photo/PXL_20220626_214820633.jpg" width="400" />
+            <img src="photo/PXL_20220620_184018426.jpg" width="400" />
         </td>
     </tr>
     <tr>
