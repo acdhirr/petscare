@@ -108,14 +108,15 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 ### Sanitary
 
-- Unluckily, the guinea pigs use the entire area and the shed as a toilet. So after a week the shed desperately needs some fresh wood chips. We'll tidy the wooden shed the day we leave. To clean the shed proceed as follows:
+- Unluckily, the guinea pigs use the entire area and the shed as a toilet. So after a week or so the shed desperately needs some fresh wood chips. We'll tidy the wooden shed the day we leave. To clean the shed proceed as follows:
     - nudge the piggies outside the shed
     - close the shed door
-    - scoop out the soiled floor covering (along with the newspapers beneath) and trash it in the iron kitchen bin
+    - scoop out the soiled floor covering (along with the newspapers beneath) and trash it in the iron kitchen bin. You can use the brush and dustpan for it. They are kept under the cat roof on the other side of the balcony, to keep them safe for the rain and the rodents gnawing.
     - put in a fresh layer of newspapers and wood chips (2 cm)
     - let the piggies re-enter the shed.
 
-Old newspapers and hay can be found in the kitchen closet with the louvre doors.
+Old newspapers, hay and wood chips can be found in the kitchen closet with the louvre doors or under the large indoor guinea pig cage.   
+There's also a box there with spare food.  
 Note: guinea pig urine can have a creamy opaque color. This is normal.
 
 <table>
