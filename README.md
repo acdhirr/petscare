@@ -8,9 +8,9 @@
 - During the day it's okay to pick your own moments for feeding as long as it will be more or less always at the same time so the cats can expect when to be feeded.
 - Feeding portions are about 20 dry pellets per feeding for each cat. Both cats have there own jar of dry pellets. 
 - Call the cats before feeding (or shake the pellets) so both will eat at the same time (otherwise one will eat twice and the other one gets nothing).
-- Once a day Balou needs a strip of about 5cm anti-hairball paste from the tube. Just put it on top of the pellets, no need to mix. Cats love the taste so once in a while it's okay to give Momo some as well. 
+- Once a day Balou needs a strip of about 5cm anti-hairball paste from the tube. Just put it on top of the pellets, no need to mix. Cats love the taste of it so once in a while it's okay to give Momo some as well. 
 - Once every few days or so you may replace one meal with halve a pouch of soft food (both cats can eat from the same pouch).
-- Water should be available abundantly because food consists mainly of dry pellets. Usually besides the drinking bowl in the kitchen I leave a small pan filled with water downstairs in the kitchen on the ground floor. Balou loves to drink from a dripping tap so if he jumps onto the kitchen top you may let him.
+- Water should be available abundantly because food consists mainly of dry pellets. Usually besides the drinking bowl in the kitchen I leave a small pan filled with water downstairs in the kitchen on the ground floor. Balou loves to drink from a dripping tap so if he jumps onto the kitchen top you may let him do so.
 
 ### Living space
 - Cats can use all rooms from the ground floor up to the top floor. Some obstacles must be placed between the door frames and the doors because Balou will close the doors shut without knowing how to open them, only for Momo to be able to set him free...
