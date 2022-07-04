@@ -94,6 +94,8 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - put in a fresh layer of newspapers and wood chips (2 cm)
     - let the piggies re-enter the shed.
 
+Old newspapers and hay can be found in the kitchen closet with the louvre doors.
+
 ### General guinea pig remarks
 
 The guinea pigs are a tight group, but you will have to keep an eye on them to see if they start quarreling and pulling each others hairs. Also they may steal each others vegetable or fruit, so it's best to hand them their portions individually and simultaneously. When it gets too bad (not likely) you may always decide to split the group and put some individuals in the large cage in the kitchen. Also when a guinea pig looks weak or in bad shape you can put him or her in observation indoors. But then of course please call us.
