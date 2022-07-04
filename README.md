@@ -71,7 +71,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - a full bowl of mixed food (seeds and grains etc.) 
     - some fresh food
     - two handfulls of hay
-    - a fresh can of water (hanging on the fence)
+    - a fresh can of water (hanging on the fence). Just refill, no cleaning needed.
 - Fresh food can be anything vegetables or fruit: 
     - cucumber, carrot (with leaves), radish (with leaves), lettuce, paprika (bell pepper), tomato 
     - brocolli/cauliflower or cabbage (but not more then two days in a row)
