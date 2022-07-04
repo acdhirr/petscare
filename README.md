@@ -52,7 +52,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 ### Living space
 
-- Guinea pigs live on the balcony 24/7 during the summer months. They sleep in the wooden shed but the sheds door remains open all day and night. 
+- Guinea pigs live on the balcony 24/7 during the summer months. They sleep in the wooden shed but the shed door remains open all day and night. 
 - There's a small push lamp beneath the roof of the shed too. Use it for your convenience, the piggies don't need it.
 - The cats and guinea pigs can get along very well, so don't mind the cats passing the piggie perimeter or even entering the wooden shed.
 
@@ -60,8 +60,8 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 - Unluckily, the guinea pigs use the entire area and the shed as a toilet. So after a week the shed desperately needs some fresh wood chips. We'll tidy the wooden shed the day we leave. To clean the shed proceed as follows:
     - nudge the piggies outside the shed
-    - close the shed's door
-    - scoop out the soiled floor covering (along with the newspapers beneath) and throw it in the iron kitchen bin
+    - close the shed door
+    - scoop out the soiled floor covering (along with the newspapers beneath) and trash it in the iron kitchen bin
     - put in a fresh layer of newspapers and wood chips (2 cm)
     - let the piggies re-enter the shed.
 
