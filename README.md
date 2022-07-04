@@ -4,7 +4,7 @@
 ## Cats care
 
 ### Feeding
-- Cats will be feeded by the robot from 21:00 - 6:00. The robot contains food pellets that both cats digest well. 
+- Cats will be feeded by the robot from 21:00 - 6:00. The robot dispenses food pellets that both cats digest well. 
 - During the day it's okay to pick your own moments for feeding as long as it will be more or less always at the same time so the cats can expect when to be feeded.
 - Feeding portions are about 20 dry pellets per feeding for each cat. Both cats have there own jar of dry pellets. 
 - Call the cats before feeding (or shake the pellets) so both will eat at the same time (otherwise one will eat twice and the other one gets nothing).
