@@ -14,19 +14,22 @@
 
 <table>
     <tr>
-        <td>
-            <img src="photo/PXL_20220630_063509681.jpg" width="400" />
+        <td rowspan="2">
+            <img src="photo/PXL_20220620_183959856.jpg" height="400" />
         </td>
         <td>
-            <img src="photo/PXL_20220620_184018426.jpg" width="400" />
+            <img src="photo/PXL_20220630_063509681.jpg" width="350" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220620_184018426.jpg" width="350" />
         </td>
     </tr>
     <tr>
         <td>
-            <img src="photo/PXL_20220624_064936225.jpg" width="400" />
+            <img src="photo/PXL_20220624_064936225.jpg" width="350" />
         </td>
         <td>
-            <img src="photo/PXL_20220624_064734518.jpg" width="400" />
+            <img src="photo/PXL_20220624_064734518.jpg" width="350" />
         </td>
     </tr>
 </table>
