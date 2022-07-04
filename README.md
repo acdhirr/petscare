@@ -49,6 +49,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - brocolli/cauliflower or cabbage (but not more then two days in a row)
     - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
     - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, paprika leaves, tomato leaves or hot peppers (just saying :-)
+    - We'll leave some cash money to buy fruit or vegetables. Just across the street in the former church building which now houses a mosque there's a nice little shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
 
 ### Living space
 
@@ -76,7 +77,9 @@ The guinea pigs are a tight group, but you will have to keep an eye on them to s
 - Could you please water the indoor plants once a week? We'll take the first turn the day we leave.
 - You may always skip a feeding moment when that's convenient for you but then better give some extra food beforehand especially to the guinea pigs. Best not to give the cats too much at once or they'll be so greedy they can't keep it in.
 
-In case anything is unclear or you can't find something, or something unexpected happens: don't hesitate to call or send us a message!
+Make yourself at home anytime. Have a tea or a coffee or a can of lemonade while spending time with our lovely animals. There's a coffee machine downstairs. In the main kitchen on the living floor there's a water kettle, ground coffee and tea, whatever you like. We'll leave some snacks as well. Take a friend with you if you need assistance and just call us in case anything is unclear or you can't find something, or something unexpected happens. Don't hesitate to call or send us a message!
+
+
 
 Telephone Richard +31653577983 
 
