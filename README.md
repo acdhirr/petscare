@@ -64,13 +64,15 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 ## GUINEA PIG CARE
 
+<img src="photo/PXL_20220615_110935700.jpg" width="400" />
+
 ### Feeding
 
 - Guinea pigs usually get some fresh food in the morning.
 - In the evening they get: 
     - a full bowl of mixed food (seeds and grains etc.) 
     - some fresh food
-    - two handfulls of hay
+    - two handfulls of hay (put it on the terrace when it's dry)
     - a fresh can of water (hanging on the fence). Just refill, no cleaning needed.
 - Fresh food can be anything vegetables or fruit: 
     - cucumber, carrot (with leaves), radish (with leaves), lettuce, paprika (bell pepper), tomato 
@@ -78,6 +80,25 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
     - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, paprika leaves, tomato leaves or hot peppers (just saying :-)
     - We'll leave some cash money to buy fruit or vegetables. Just across the street in the former church building which now houses a mosque there's a nice little turkish shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
+
+<table>
+    <tr>
+        <td>
+            <img src="photo/PXL_20220620_183847764.jpg" width="400" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220515_073746880.jpg" width="400" />
+        </td>
+    </tr>
+    <tr>
+        <td>
+            <img src="photo/PXL_20220621_184156885.jpg" width="400" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220620_184621107.jpg" width="400" />
+        </td>
+    </tr>
+</table>
 
 ### Living space
 
@@ -96,6 +117,25 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 Old newspapers and hay can be found in the kitchen closet with the louvre doors.
 Note: guinea pig urine can have a creamy opaque color. This is normal.
+
+<table>
+    <tr>
+        <td>
+            <img src="photo/PXL_20220628_180504343.jpg" width="400" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220626_104949289.jpg" width="400" />
+        </td>
+    </tr>
+    <tr>
+        <td>
+            <img src="photo/PXL_20220626_105059434.jpg" width="400" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220626_105433145.jpg" width="400" />
+        </td>
+    </tr>
+</table>
 
 ### General guinea pig remarks
 
