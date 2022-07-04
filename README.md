@@ -153,9 +153,9 @@ Make yourself at home anytime. Have a tea or a coffee or a can of lemonade while
 
 Thank you so much for taking on this task!
 
-Best regards,
-Richard
-+31653577983 
+Best regards,  
+Richard  
++31653577983   
 
 
 
