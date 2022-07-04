@@ -34,7 +34,7 @@
 ### Living space
 - Cats can use all rooms from the ground floor up to the top floor. Some obstacles must be placed between the door frames and the doors because Balou will close the doors shut without knowing how to open them, only for Momo to be able to set him free...
 - Cats use the side balcony but not the terrace on the sleeping floor. When unattended Balou will climb over the fence of the terrace on the sleeping floor to the neighbouring terraces. Usually he'll come back after a while if you leave the gate open, but that's probably not something you will want to wait for. So if you insist you can go there as long as you'll keep an eye on him.
-- Beware for the cats not to run on the street once you open the front door. Mostly they will be to shy to do so, but you never know.
+- Beware for the cats not to run on the street when you open the front door. Mostly they will be to shy to do so, but you never know.
 - Some furniture is covered in sheets for protection against too many cat hairs. 
 - If in any case a cat jumps or falls of the balcony and you cannot find it immediately, unscrew the plate from the cat door at the back side of the house on the ground floor, so they can use that door to re-enter the house. It's a one way door so they cannot use it to go out again, but other cats (neighbours) may try as well and they'll be trapped inside the house until you set them free.
 - Balou mostly uses the bunk bed on the top floor to 'chill', while Momo mostly hides in the closet with the sliding doors in the large sleeping room.
