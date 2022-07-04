@@ -151,9 +151,11 @@ The guinea pigs are a tight group, but you will have to keep an eye on them to s
 
 Make yourself at home anytime. Have a tea or a coffee or a can of lemonade while spending time with our lovely animals. There's a coffee machine downstairs. In the main kitchen on the living floor there's a water kettle, ground coffee and tea, whatever you like. We'll leave some snacks as well. Take a friend with you if you need assistance and just call us in case anything is unclear or you can't find something, or something unexpected happens. Don't hesitate to call or send us a message!
 
+Thank you so much for taking on this task!
 
-
-Telephone Richard +31653577983 
+Best regards,
+Richard
++31653577983 
 
 
 
