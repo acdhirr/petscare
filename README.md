@@ -12,6 +12,25 @@
 - Once every few days or so you may replace one meal with halve a pouch of soft food (both cats can eat from the same pouch).
 - Water should be available abundantly because food consists mainly of dry pellets. Usually besides the drinking bowl in the kitchen I leave a small pan filled with water downstairs in the kitchen on the ground floor. Balou loves to drink from a dripping tap so if he jumps onto the kitchen top you may let him do so.
 
+<table width="100%">
+    <tr>
+        <td>
+            <img src="photo/PXL_20220630_063509681.jpg" width="200" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220626_214820633.jpg" width="200" />
+        </td>
+    </tr>
+    <tr>
+        <td>
+            <img src="photo/PXL_20220624_064936225.jpg" width="200" />
+        </td>
+        <td>
+            <img src="photo/PXL_20220624_064734518.jpg" width="200" />
+        </td>
+    </tr>
+</table>
+
 ### Living space
 - Cats can use all rooms from the ground floor up to the top floor. Some obstacles must be placed between the door frames and the doors because Balou will close the doors shut without knowing how to open them, only for Momo to be able to set him free...
 - Cats use the side balcony but not the terrace on the sleeping floor. When unattended Balou will climb over the fence of the terrace on the sleeping floor to the neighbouring terraces. Usually he'll come back after a while if you leave the gate open, but that's probably not something you will want to wait for. So if you insist you can go there as long as you'll keep an eye on him.
