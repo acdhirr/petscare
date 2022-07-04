@@ -21,7 +21,7 @@
 - Balou mostly uses the bunk bed on the top floor to 'chill', while Momo mostly hides in the closet with the sliding doors in the large sleeping room.
 
 ### Sanitary
-- Cat sanitary is on the side balcony next to the kitchen. There's a small push lamp beneath the roof in case it gets too dark.
+- Cat sanitary is on the side balcony next to the kitchen. There's a small push lamp beneath the roof in case you'll arrive after sunset.
 - There are two cat toilets that must be cleant ideally every day by scooping out the poop and the lumps. And then throw in half a bucket of fresh cat litter. 
 - Once every 10 days usually we refill the entire toilet and take out the trash.
 
