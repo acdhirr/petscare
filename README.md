@@ -1,7 +1,7 @@
 # PETS CARE
 
 ## Cats care
-<img src="photo/PXL_20220626_214820633.jpg" width="400" />
+<img src="photo/PXL_20220626_214820633.jpg" width="600" />
 
 ### Feeding
 - Cats will be feeded by the robot from 21:00 - 6:00. The robot dispenses food pellets that both cats digest well. 
@@ -64,7 +64,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 ## GUINEA PIG CARE
 
-<img src="photo/PXL_20220615_110935700.jpg" width="400" />
+<img src="photo/PXL_20220615_110935700.jpg" width="600" />
 
 ### Feeding
 
