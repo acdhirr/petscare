@@ -136,7 +136,7 @@ Note: guinea pig urine can have a creamy opaque color. This is normal.
 
 ### General guinea pig remarks
 
-The guinea pigs are a tight group, but you will have to keep an eye on them to see if they start quarreling and pulling each others hairs. Also they may steal each others vegetable or fruit, so it's best to hand them their portions individually and simultaneously. When it gets too bad (not likely) you may always decide to split the group and put some individuals in the large cage in the kitchen. Also when a guinea pig looks weak or in bad shape you can put him or her in observation indoors. But then of course please call us.
+The guinea pigs are a tight group, but you will have to keep an eye on them to see if they start quarreling and pulling each others hairs. Also they may steal each others vegetable or fruit, so it's best to hand them their portions individually and simultaneously. When it gets too bad (not likely) you may always decide to split the group and put some individuals in the large cage in the kitchen. Also when a guinea pig looks weak or in bad shape you can put him or her under observation indoors. But then of course please call us.
 
 
 # GENERAL
