@@ -95,6 +95,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - let the piggies re-enter the shed.
 
 Old newspapers and hay can be found in the kitchen closet with the louvre doors.
+Note: guinea pig urine can have a creamy opaque color. This is normal.
 
 ### General guinea pig remarks
 
