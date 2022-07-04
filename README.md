@@ -21,12 +21,49 @@
 - Balou mostly uses the bunk bed on the top floor to 'chill', while Momo mostly hides in the closet with the sliding doors in the large sleeping room.
 
 ### Sanitary
+- Cat sanitary is on the side balcony next to the kitchen. There's a small push lamp beneath the roof in case it gets too dark.
 - There are two cat toilets that must be cleant ideally every day by scooping out the poop and the lumps. And then throw in half a bucket of fresh cat litter. 
 - Once every 10 days usually we refill the entire toilet and take out the trash.
 
 ### Hairball puking 
 
-Momo seldom pukes, but Balou does once in a while. When Balou throws up usually there's a hairball stuck in his digestive system. His intestants may get upset but Balou doesn't suffer too much and still is hungry. It's best to keep him on a diet of soft food mashed with water and the usual anti-hairball paste until the puking stops. At nights he may still eat pellets coming from the robot, which is unavoidable, but okay. You may give Momo some soft food as well then, because she will be attracted to Balou's food and try to push him away to steal it. During periods of throwing up it's best to keep the sleeping rooms on the top floor shut to prevent Balou from soiling the beds.
+Momo seldom pukes, but Balou does once in a while. When Balou throws up usually there's a hairball stuck in his digestive system. His intestants may get upset but Balou doesn't suffer too much and still is hungry. It's best to keep him on a diet of soft food mashed with water and the usual anti-hairball paste until the puking stops. At nights he may still eat pellets coming from the robot, which is unavoidable, but okay. You may give Momo some soft food as well then, because she will be attracted to Balou's food and try to push him away to steal it. During periods of throwing up it's best to keep the sleeping rooms on the top floor shut, to prevent Balou from soiling the beds. 
+
+
+# GUINEA PIG CARE
+
+### Feeding
+
+- Guinea pigs usually get some fresh food in the morning.
+- In the evening they get: 
+    - a full bowl of mixed food (seeds and grains etc.) 
+    - some fresh food
+    - two handfulls of hay
+    - a fresh can of water (hanging on the fence)
+- Fresh food can be anything vegetables or fruit: 
+    - cucumber, carrot, radish, lettuce, paprika (bell pepper), tomato 
+    - brocolli/cauliflower or cabbage (but not more then two days in a row)
+    - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
+    - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, hot peppers or tomato leaves (just saying :-)
+
+### Living space
+
+- Guinea pigs live on the balcony 24/7 during the summer months. They sleep in the wooden shed but the shed's door remains open all day and night. 
+- There's a small push lamp beneath the roof of the shed too. Use it for your convenience, they piggies don't need it.
+- 
+
+
+
+# GENERAL
+
+- Some lamps are programmed to switch on and off randomly during the late evening and early morning.
+- Can you water the indoor plants once a week (we'll take the first turn the day we leave)? 
+- You may always skip a feeding moment when that's convenient for you but then better give some extra food beforehand especially to the guinea pigs. Best not to give the cats too much at once or they'll be so greedy they can't keep it in.
+
+In case anything is unclear or you can't find something, or something unexpected happens: don't hesitate to call or send a message!
+
+Telephone Richard +31653577983 
+
 
 
 
