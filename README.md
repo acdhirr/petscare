@@ -12,21 +12,21 @@
 - Once every few days or so you may replace one meal with halve a pouch of soft food (both cats can eat from the same pouch).
 - Water should be available abundantly because food consists mainly of dry pellets. Usually besides the drinking bowl in the kitchen I leave a small pan filled with water downstairs in the kitchen on the ground floor. Balou loves to drink from a dripping tap so if he jumps onto the kitchen top you may let him do so.
 
-<table style="width:100%">
+<table>
     <tr>
-        <td style="width:50%">
-            <img src="photo/PXL_20220630_063509681.jpg" width="300" />
+        <td>
+            <img src="photo/PXL_20220630_063509681.jpg" width="400" />
         </td>
         <td>
-            <img src="photo/PXL_20220626_214820633.jpg" width="300" />
+            <img src="photo/PXL_20220626_214820633.jpg" width="400" />
         </td>
     </tr>
     <tr>
-        <td style="width:50%">
-            <img src="photo/PXL_20220624_064936225.jpg" width="300" />
+        <td>
+            <img src="photo/PXL_20220624_064936225.jpg" width="400" />
         </td>
         <td>
-            <img src="photo/PXL_20220624_064734518.jpg" width="300" />
+            <img src="photo/PXL_20220624_064734518.jpg" width="400" />
         </td>
     </tr>
 </table>
