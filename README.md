@@ -27,7 +27,7 @@
 
 ### Hairball puking 
 
-Momo seldom pukes, but Balou does once in a while. When Balou throws up usually there's a hairball stuck in his digestive system. His intestants may get upset but Balou doesn't suffer too much and still is hungry. It's best to keep him on a diet of soft food mashed with water and the usual anti-hairball paste until the puking stops. At nights he may still eat pellets coming from the robot, which is unavoidable, but okay. You may give Momo some soft food as well then, because she will be attracted to Balou's food and try to push him away to steal it. During periods of throwing up it's best to keep the sleeping rooms on the top floor shut, to prevent Balou from soiling the beds. 
+Momo seldom pukes, but Balou does once in a while. When Balou throws up usually there's a hairball stuck in his digestive system. His intestants may get upset but Balou doesn't suffer too much and still is hungry. It's best to keep him on a diet of soft food mashed with water and the usual anti-hairball paste until the puking stops. At nights he may still eat pellets coming from the robot, which is unavoidable, but okay. You may give Momo some soft food as well then, because otherwise she will try to push Balou away and eat his food. During periods of throwing up it's best to keep the sleeping rooms on the top floor shut, to prevent Balou from soiling the beds. 
 
 ### General cat remarks
 
