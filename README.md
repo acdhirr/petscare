@@ -48,7 +48,7 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - cucumber, carrot (with leaves), radish (with leaves), lettuce, paprika (bell pepper), tomato 
     - brocolli/cauliflower or cabbage (but not more then two days in a row)
     - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
-    - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, hot peppers, paprika or tomato leaves (just saying :-)
+    - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, paprika leaves, tomato leaves or hot peppers (just saying :-)
 
 ### Living space
 
