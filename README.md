@@ -143,11 +143,11 @@ The guinea pigs are a tight group, but you will have to keep an eye on them to s
 
 - Some lamps on the ground floor and in the living area are programmed to switch on and off randomly during the late evening and early morning.
 - Could you please water the indoor plants once a week? We'll take the first turn the day we leave.
-- You may always skip a feeding moment when that's convenient for you but then better give some extra food beforehand especially to the guinea pigs. Best not to give the cats too much at once or they'll be so greedy they can't keep it in.
+- You may always skip a feeding moment when that's convenient for you but then please give some extra food beforehand especially to the guinea pigs. Best not to give the cats too much at once or they'll be so greedy they can't keep it in.
 
-Make yourself at home anytime. Use the wifi if you want to (login credentials on a paper at the side of the refrigerator). Have a tea or a coffee or a can of lemonade while spending time with our lovely animals. There's a coffee machine downstairs. In the main kitchen on the living floor there's a water kettle, ground coffee and tea, whatever you like. We'll leave some snacks as well. Take a friend with you if you need assistance and just call us in case anything is unclear or you can't find something, or something unexpected happens. Don't hesitate to call or send us a message!
+Make yourself at home anytime. Use the wifi if you want to (login credentials on a paper at the side of the refrigerator). Downstairs is a coffee machine. In the kitchen on the living floor there's a water kettle and ground coffee and tea. We'll leave some snacks as well. Take a friend with you if you need assistance and just call us in case anything is unclear or you can't find something, or something unexpected happens. Don't hesitate to call or send us a message!
 
-Thank you so much for taking on this task!
+Thank you so much for taking on this task and good luck!
 
 Best regards,  
 Richard  
