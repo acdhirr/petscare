@@ -71,11 +71,11 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - two handfulls of hay (put it on the terrace when it's dry)
     - a fresh can of water (hanging on the fence). Just refill, no cleaning needed.
 - Fresh food can be anything vegetables or fruit: 
-    - cucumber, carrot (with leaves), radish (with leaves), lettuce, paprika (bell pepper), tomato 
-    - brocolli/cauliflower or cabbage (but not more then two days in a row)
+    - cucumber, lettuce, witlof, carrot (with leaves), radish (with leaves), lettuce, paprika (bell pepper), tomato 
+    - brocolli/cauliflower, cabbage or carrot (with leaves) but these not more then two days in a row
     - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
     - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, paprika leaves, tomato leaves or hot peppers (just saying :-)
-    - We'll leave some cash money to buy fruit or vegetables. Just across the street in the former church building which now houses a mosque there's a nice little turkish shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
+    - We'll leave some cash money to buy fruit or vegetables. Just across the street in the church building which now houses a mosque there's a nice little turkish shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
 
 <table>
     <tr>
@@ -104,10 +104,10 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
 
 ### Sanitary
 
-- Unluckily, the guinea pigs use the entire area and the shed as a toilet. So after a week or so the shed desperately needs some fresh wood chips. We'll tidy the wooden shed the day we leave. To clean the shed proceed as follows:
+- The guinea pigs use the entire area and the shed as a toilet. So after a week or so the shed desperately needs some fresh wood chips. We'll tidy the wooden shed the day we leave. To clean the shed proceed as follows:
     - nudge the piggies outside the shed
     - close the shed door
-    - scoop out the soiled floor covering (along with the newspapers beneath) and trash it in the iron kitchen bin. You can use the brush and dustpan for it. They are kept under the cat roof on the other side of the balcony, to keep them safe for the rain and the rodents gnawing.
+    - scoop out the soiled floor covering (along with the newspapers beneath) and trash it in the iron kitchen bin. You can use the brush and dustpan for it. They are kept under the cat roof on the other side of the balcony, to keep them safe for the rain and the rodents teeth.
     - put in a fresh layer of newspapers and wood chips (2 cm)
     - let the piggies re-enter the shed.
 
@@ -136,7 +136,7 @@ Note: guinea pig urine can have a creamy opaque color. This is normal.
 
 ### General guinea pig remarks
 
-The guinea pigs are a tight group, but you will have to keep an eye on them to see if they start quarreling and pulling each others hairs. Also they may steal each others vegetable or fruit, so it's best to hand them their portions individually and simultaneously. When it gets too bad (not likely) you may always decide to split the group and put some individuals in the large cage in the kitchen. Also when a guinea pig looks weak or in bad shape you can put him or her under observation indoors. But then of course please call us.
+The guinea pigs are a tight group, but you will have to keep an eye on them to see if they start quarreling and pulling each others hairs. Also they may steal each others vegetable or fruit, so it's best to hand them their portions individually and simultaneously. When it gets too bad (not likely) you may always decide to split the group and put some individuals in the large cage in the kitchen. Also when a guinea pig looks weak or in bad shape you can put him or her under observation indoors. But then of course please contact us.
 
 
 # GENERAL
