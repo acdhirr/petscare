@@ -39,8 +39,8 @@
 - Cats use the side balcony but not the terrace on the sleeping floor. When unattended Balou will climb over the fence of the terrace on the sleeping floor to the neighbouring terraces. Usually he'll come back after a while if you leave the gate open, but that's probably not something you will want to wait for. So if you insist you can go there as long as you'll keep an eye on him.
 - Beware for the cats not to run on the street when you open the front door. Mostly they will be to shy to do so, but you never know.
 - Some furniture is covered in sheets for protection against too many cat hairs. 
-- If in any case a cat jumps or falls of the balcony and you cannot find it immediately, unscrew the plate from the cat door in the back door of the house on the ground floor, so they can use that door to re-enter the house. It's a one way door so they cannot use it to go out again, but neighbour cats may try as well and they'll be trapped inside the house until you set them free.
-- Balou mostly uses the bunk bed on the top floor to 'chill', while Momo mostly hides in the closet with the sliding doors in the large sleeping room.
+- If in any case a cat jumps or falls of the balcony and you cannot find it immediately, unscrew the plate from the cat door in the back door of the house on the ground floor, so they can use that door to re-enter the house. It's a one way door so they cannot use it to go out again, but neighbour cats may try as well and they'll be trapped inside the house until you let them out again.
+- Balou mostly uses the bunk bed on the top floor to 'chill', while Momo often hides in the closet with the sliding doors in the large sleeping room.
 
 ### Sanitary
 - Cat sanitary is on the side balcony next to the kitchen. There's a small push lamp beneath the roof in case you'll arrive after sunset.
@@ -71,11 +71,11 @@ Momo and Balou are brother and sister and they get along very well. Sometimes th
     - two handfulls of hay (put it on the terrace when it's dry)
     - a fresh can of water (hanging on the fence). Just refill, no cleaning needed.
 - Fresh food can be anything vegetables or fruit: 
-    - cucumber, lettuce, witlof, carrot (with leaves), radish (with leaves), lettuce, paprika (bell pepper), tomato 
+    - cucumber, lettuce, witlof, lettuce (all types), radish (with leaves), paprika (bell pepper), tomato 
     - brocolli/cauliflower, cabbage or carrot (with leaves) but these not more then two days in a row
     - apple, pear, banana, grapes, strawberries, peach, orange etc. but they do not fancy too sweet fruits
     - NOT: leek or anything related to onions, potatoe, beans, courgette (zucchini), aubergine (eggplant), mushrooms, paprika leaves, tomato leaves or hot peppers (just saying :-)
-    - We'll leave some cash money to buy fruit or vegetables. Just across the street in the church building which now houses a mosque there's a nice little turkish shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
+    - We leave some cash money to buy fruit or vegetables. Just across the street in the church building which now houses a mosque there's a nice little turkish shop (called Arzem) run by a very sympathetic owner, selling fresh fruit and vegetables. 
 
 <table>
     <tr>
